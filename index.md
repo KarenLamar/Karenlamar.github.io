@@ -1,5 +1,9 @@
 Updates every Wednesday
 
+## December 9, 2020
+
+![Stickman Adventures](comics/TeleportationShenanigans.png)
+
 ## December 2, 2020
 
 ![Stickman Adventures](comics/AmongusPoses.png)
