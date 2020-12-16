@@ -2,7 +2,7 @@ Updates every Wednesday
 
 ## December 16, 2020
 
-![Stickman Adventures](comics/ThyCrossover.png)
+![Stickman Adventures](comics/ThyCrosover.png)
 
 ## December 9, 2020
 
