@@ -1,5 +1,13 @@
 Updates every Wednesday
 
+## January 3, 2020(yes ik this is a sunday be quiet)
+
+![Stickman Adventures](comics/Lovelife.png)
+
+![Stickman Adventures](comics/derpanikmals2.png)
+
+![Stickman Adventures](comics/Celebration.png)
+
 ## December 16, 2020
 
 ![Stickman Adventures](comics/ThyCrosover.png)
