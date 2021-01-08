@@ -1,5 +1,9 @@
 Updates every Wednesday
 
+## January 8, 2020(IK ITS A FRIDAY SHUSH)
+
+![Stickman Adventures](comics/Sd.png)
+
 ## January 3, 2020(yes ik this is a sunday be quiet)
 
 ![Stickman Adventures](comics/Lovelife.png)
